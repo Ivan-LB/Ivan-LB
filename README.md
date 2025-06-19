@@ -1,5 +1,5 @@
 # 💫 About Me:
-🦾 I am a Biomedical Engineer student looking forward to learn more about the tech industry.
+🦾 I am a Biomedical Engineer looking forward to learn more about the tech industry.
 
 
 ## 🌐 Socials:
